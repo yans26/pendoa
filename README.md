@@ -1,0 +1,2 @@
+# pendoa
+urip iku urup
